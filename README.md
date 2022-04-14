@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @VedhanshB,
-- 👀 I’m interested in Coding and Ui and Ux designing,
+- 👀 I’m interested in Coding and UI and Ux designing,
 - 🌱 I’m currently learning coding,
 - 📫 How to reach me : vedhansh2011@icloud.com or gameboy523070@gmail.com
 
